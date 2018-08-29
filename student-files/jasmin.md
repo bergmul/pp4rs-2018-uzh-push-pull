@@ -1,6 +1,2 @@
-|\---/|
-| o_o |
- \_^_/
 
-
-Hello Alena, how did you sleep?
+ Cute cat, Jasmin! But I deleted it :(
