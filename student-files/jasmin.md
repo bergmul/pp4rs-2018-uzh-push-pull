@@ -1,3 +1,2 @@
-|\---/|
-| o_o |
- \_^_/
+
+ Cute cat, Jasmin! But I deleted it :(
