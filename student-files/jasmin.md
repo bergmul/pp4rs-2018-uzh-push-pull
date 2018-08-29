@@ -1,0 +1,1 @@
+Die Schweizer Messe des guten Geschmacks findet jeweils im März in Bern und im November in Zürich statt – die nächsten Ausgaben sind vom 02. bis 04. März 2018 in Bern und vom 16. bis 18. November in der Messe Zürich.
