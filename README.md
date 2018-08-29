@@ -2,4 +2,4 @@
 
 Hello there!
 
-It is actually 'good morning'!
+My own text.
