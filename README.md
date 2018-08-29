@@ -1,5 +1,3 @@
-# A warm hello
-
-Hello there!
-
-My own text.
+|\---/|
+| o_o |
+ \_^_/
