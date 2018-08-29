@@ -8,4 +8,4 @@ Hello Alena! How are you? :) CONFLICT
 
 I think she's fine
 
-I AM :P
+CONFLICT ! :) 
